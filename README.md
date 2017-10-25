@@ -29,4 +29,9 @@ http://www.corsogourmet.hu/
 1056 BUDAPEST, VÁCI UTCA 54.  
 8.00-21.00   
 
+#### Andreas Vendeglo
+https://www.facebook.com/andreasbistro1/  
+Szarka utca 1. 1056 Budapest, Hungary   
+Hours 11:00 - 22:30
+
 
