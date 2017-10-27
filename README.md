@@ -38,3 +38,10 @@ Hours 11:00 - 22:30
 http://fozelekfaloetelbar.hu/etterem/  
 Ferenciek tere - 1053 Budapest, Petőfi Sándor u. 1.   
 Hours 10AM – 8PM
+
+#### Molnarka
+https://www.facebook.com/molnarkakavezo/  
+Molnár u. 4. 1056 Budapest, Hungary  
+Hours 09:00 - 15:30  
+
+
