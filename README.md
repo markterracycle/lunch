@@ -44,4 +44,16 @@ https://www.facebook.com/molnarkakavezo/
 Molnár u. 4. 1056 Budapest, Hungary  
 Hours 09:00 - 15:30  
 
+#### Magyar izek magyar haza
+http://www.magyarizekmagyarhaza.hu/  
+1053 Budapest, Váci utca 78-80  
+Hours 9:00-22:00  
+Leves+foetel = 1000  
+
+#### Humuszbar
+http://hummusbar.hu/hu/hummus-bar-vaci-utca/  
+V. Budapest, 1056 Váci utca 82.  
+Hours  H-V: 11:00-23:00   
+
+
 
